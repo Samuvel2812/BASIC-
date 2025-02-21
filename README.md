@@ -1,1 +1,1 @@
-https://github.com/Samuvel2812/BASIC-/
+https://samuvel2812.github.io/BASIC-/
